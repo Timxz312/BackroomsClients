@@ -20,4 +20,4 @@ SOLARIS Client: Orange and gold
 
 GHOST Client: Silver and mint
 
-files.zip is if you wanna download all of the hack clients
+click code then download .zip for all clients downloaded
